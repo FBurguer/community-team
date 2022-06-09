@@ -27,10 +27,17 @@ Dogs, books, movies/series, coffee
 Other things you might want to know:
 
 My favorite baked good: Carrot cake
+
 Pet: Uma (A small white poodle)
+
 My birthday: July 21
+
 Fruit on pizza? big NO
+
 My coffee order: Big cappuccino with sugar
+
 My hometown: Montevideo-Uruguay
+
 Sports loyalties: Redbull Racing
+
 My favorite GIF:![pain-it-hurts](https://user-images.githubusercontent.com/90205432/172892336-b4875654-e74b-44e8-a509-2b61d0216e99.gif)
